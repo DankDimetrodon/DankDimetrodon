@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DankDimetrodon
+- 👀 I’m interested in Animation, Creature Design, Concept Art, and Character Design
+- 🌱 I’m currently learning more about 3D Animation and art as a whole.
+- 💞️ I’m looking to collaborate on game and movie projects.
+- 📫 Reach out through raulguillamabusiness@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love dinosaurs and extinct animals as a whole.
